@@ -1,1 +1,1 @@
-# http-slightbug.github.io-
+## About work. About life.
